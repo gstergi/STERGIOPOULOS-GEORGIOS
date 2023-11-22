@@ -1,2 +1,2 @@
-# STERGIOPOULOS-GEORGIOS
+ STERGIOPOULOS GEORGIOS
 ΣΤΟΙΧΕΙΑ  ΜΗΧΑΝΩΝ-ΣΧΕΔΙΟ-Β΄ ΕΠΑΛ
